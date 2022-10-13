@@ -1,0 +1,1 @@
+int + char jajula void main is a the klmnoooppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppppp
